@@ -1,4 +1,4 @@
-# 
+# Top WinRAR scripts pour Mac OS | Personnalisé WinRAR scripts pour PC Windows. Avec points de restauration et détection de fichiers en double — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
